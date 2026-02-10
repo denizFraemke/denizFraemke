@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @denizFraemke
-- 👀 I’m interested in Neuroscience and Psychology
+- 👀 I’m interested in Sociogenomics and Psychology
 
